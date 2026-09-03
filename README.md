@@ -28,4 +28,4 @@
 <img src="https://64.media.tumblr.com/27b20d221f90a5ddc9bc31e9163ac62a/b1c850e438ac29e4-d3/s400x600/92bdd5eb947bfca1b8b31fe597da7ddba50996c0.gifv" width="80">ㅤㅤ<img src="https://64.media.tumblr.com/f8dfa4b6e47c39dc4b860990795e21bb/b1c850e438ac29e4-2a/s400x600/fad5682f7a6c8c8a11d88f27c4e8ac073512c4c6.gifv" width="80">
 
 
-$${\color{#484848}\textsf{nullscape slop account and idk what i should write here}}$$
+$${\color{#484848}\textsf{' Time is literally ticking ,}}$$
