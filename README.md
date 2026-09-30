@@ -4,7 +4,7 @@
 
 [sign ata !](https://nattrie.atabook.org/)ㅤ.ㅤ[byi](https://rentry.co/theguardianz)
 
-<img src="https://64.media.tumblr.com/74150f5474cd0aac6d35b5c00fa94c94/e32854c322fabf64-c4/s250x400/aaa2a5a019a0dc3981ce6f437d1d409177f63062.gifv" width="150">
+<img src="https://64.media.tumblr.com/74150f5474cd0aac6d35b5c00fa94c94/e32854c322fabf64-c4/s250x400/aaa2a5a019a0dc3981ce6f437d1d409177f63062.gifv" width="120">
 
 
 
@@ -14,5 +14,3 @@
 
 
 alone or with friends / my bf , w2c
-
-^_^
