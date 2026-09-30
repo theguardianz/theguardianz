@@ -4,9 +4,15 @@
 
 [sign ata !](https://nattrie.atabook.org/)ㅤ.ㅤ[byi](https://rentry.co/theguardianz)
 
-![image](https://64.media.tumblr.com/74150f5474cd0aac6d35b5c00fa94c94/e32854c322fabf64-c4/s250x400/aaa2a5a019a0dc3981ce6f437d1d409177f63062.gifv)
+<img src="https://64.media.tumblr.com/74150f5474cd0aac6d35b5c00fa94c94/e32854c322fabf64-c4/s250x400/aaa2a5a019a0dc3981ce6f437d1d409177f63062.gifv" width="150">
+
+
+
+
+ㅤ
+<img src="https://64.media.tumblr.com/de90880e79b009dc3dd7ef07c2fa6485/aba825d4794e7051-30/s2048x3072/2d5655d83d8f684efe7f8f9e135536c048d3ea32.pnj" width="250">
+
 
 alone or with friends / my bf , w2c
 
-ㅤ
-<img src="https://64.media.tumblr.com/b804a2623ef4000adbefa800a4366226/5e35a4b933f056c3-f7/s1280x1920/5bccb032bf71b0429ead602472a844fe5586fdb4.pnj" width="300">
+^_^
