@@ -15,4 +15,4 @@
 
 alone or with friends / my bf , w2c
 
-someone is fucking ship Guardian x TW **PLEASE DNI** me
+Guardian x Tinky Winky shippers **PLEASE DNI**
