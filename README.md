@@ -14,4 +14,6 @@
 
 call me nattrie / lacie or akebono ^_^
 
+6teen . any pronouns for sure!
+
 alone or with friends / my bf , w2c
