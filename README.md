@@ -12,7 +12,6 @@
 ㅤ
 <img src="https://64.media.tumblr.com/de90880e79b009dc3dd7ef07c2fa6485/aba825d4794e7051-30/s2048x3072/2d5655d83d8f684efe7f8f9e135536c048d3ea32.pnj" width="250">
 
+call me nattrie / lacie or akebono ^_^
 
 alone or with friends / my bf , w2c
-
-Guardian x Tinky Winky shippers **PLEASE DNI**
